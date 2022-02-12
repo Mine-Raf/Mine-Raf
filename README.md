@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mine-Raf
+- 👀 I’m interested in girls
+- 🌱 I’m currently learning how to live
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me You can't :)
